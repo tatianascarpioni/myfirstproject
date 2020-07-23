@@ -3,6 +3,6 @@ Meu primeiro projeto
 
 Hoje estou aprendendo github!!!
 
-Vai curintiaaaaa!!!
+Vai Corinthians!!!
 
 
